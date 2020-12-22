@@ -38,3 +38,6 @@ References should be done inline using the following styles
 Bible Texts: (John 3:16)
 We will use the English Standard Version (please no bible lawyers; if you want to reference Strongs definitions go ahead)
 Commentaries (Thomas Aquinas, SUMMA THEOLOGICA; pg 56)
+
+All the best and Godspeed!
+BenjiTbear
