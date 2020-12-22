@@ -1,5 +1,7 @@
 ###README###
 
+THIS FOR EASY PUBLIC VIEWING. PERIODIC UPDATES WILL BE POSTED. THE ACTUAL FILES ARE BEING EDITED BY THE CONTRIBUTORS.
+
 INTENT
 Before continuing please listen to the stream #unknown on t.me/wdtlpodcast. For those who missed it, we are attempting to build a Christian alternative to Sharia 
 law. Beartaria is a Christian nation and it is good that a nation be governed justly. Therefore we are in need of a body of principles, rules and precepts (which
